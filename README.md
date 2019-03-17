@@ -1,0 +1,9 @@
+The flexible <a href="http://www.orinjet.com/digital-uv-flexible-pvc-film-printer.html"/>film UV printer</a> is specialized in printing the picture in the soft membrane. The flexible film, also called stretch fabric, has become the preferred material of making the suspending ceiling, it is made of PVC material and then process cutting the desired shape through one time or several times and finally finished by frequency welding. The flexible film has the features of waterproofing, fire protection, moisture-proof, mold prevention, insulation, easy forming, and so on. The application of flexible film in the suspending ceiling is the combination of lighting and artistic ceiling because any rich color and style can be print out according to the designer's imagination, in other words, the individualized customization of home decoration can be achieved. 
+ 
+Application Solutions of Flexible <a href="http://www.orinjet.com/products/"/>Large Format UV Printer</a>
+In the case of movie light printing, the soft film is the most useful material, because its price and flexibility are better than pearl cloth; Compared with a back-lit banner, the soft film has no curve, and has good lighting vision effect after lighting, with the transparent and soft picture. Used in lightbox is easy to install and replace the picture, furthermore, the soft film is durable, water-proof, fire prevention, easy to clean and against fading. 
+ 
+Targeted Application Field of Flexible <a href="http://www.orinjet.com/digital-uv-flexible-pvc-film-printer.html"/>PVC film printer</a>
+The soft film has come into widespread use, such as the backdrop lightbox, the advertising lightbox in both sides of subway and in the airport, the brand name and lightbox of the shopping mall, and so on. 
+
+<img src="http://www.orinjet.com/uploads/image/20181108/12/soft-film-printer-1.jpg"/>
